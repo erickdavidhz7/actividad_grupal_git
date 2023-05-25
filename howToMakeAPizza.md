@@ -1,6 +1,6 @@
-1. Primero hay que tener los ingredientes bases listos que serian agua, levadura, sal y aceite de oliva.
-2. Con medio kilo de harina se le coloca una cuchara de levadura, se revuelven durante un tiempo.
-3. Despues se coloca una taza de agua, se va amazando y despues se coloca un poco de sal y se sigue revolviendo.
+1. 1 cucharada de harina, 1 cucharadita de sal fina, 2 tazas de agua tibia y 2 cucharadas de aceite de oliva
+2. se mezclan en un recipiente hasta elaborar una masa
+3. Antes de que la preparación se enfríe, añade en un bol amplio la harina de fuerza y la sal, acomódalas en forma de volcán.
 4. Se le coloca un chorrito de aceite e ir revolviendo mientras vas colocando cucharadas de sal.
 5. Despues con la harina se combina con la masa y se le va dando forma.
 6. Despues dejar la masa en un trapo humedo y guardar en la nevera durante 2 horas.
